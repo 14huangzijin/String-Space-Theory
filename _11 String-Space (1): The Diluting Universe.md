@@ -1,6 +1,4 @@
-
-
-The explosion of the Mother Black Hole formed our dilating universe.
+The explosion of the Mother Black Hole formed our diluting universe.
 
 The string is infinite in length. This means String-Space is also infinite in size.
 
@@ -34,13 +32,13 @@ A black hole weaves all the matter it inhales according to the direction it was 
 
 The reason matter and antimatter are asymmetric in our universe is that the Mother Black Hole itself possessed a twist direction.
 
-The ordinary black holes in our dilating universe all share the same direction, because all the material loops in our universe share the same twist direction.
+The ordinary black holes in our diluting universe all share the same direction, because all the material loops in our universe share the same twist direction.
 
 But in the Greater Universe, different Mother Black Holes have different twist directions. Some are clockwise. Some are counter-clockwise.
 
 When a black hole explodes, its own action of twisting into a twist-pair ceases, and then it twists in reverse, releasing its twist-pair.
 
-Our dilating universe was formed by the reverse-twisting release of a Mother Black Hole that possessed a specific twist direction. This is why the vast majority of matter is of the same direction.
+Our diluting universe was formed by the reverse-twisting release of a Mother Black Hole that possessed a specific twist direction. This is why the vast majority of matter is of the same direction.
 
 This raises a question: could the origin of the universe have been the mutual annihilation of two black holes with opposite twists?
 
@@ -104,6 +102,6 @@ Imagine, outside our dilution bubble, there still exist many black holes. Some m
 
 How large was the Mother Black Hole? Its event horizon radius was approximately twenty-five billion light-years. This is on the same order of magnitude as the ninety-three billion light-years of our observable dilution bubble.
 
-If a Mother Black Hole were to pass by at a great distance, its gravity might cause brief fluctuations in the string density of the dilating universe, but without major impact.
+If a Mother Black Hole were to pass by at a great distance, its gravity might cause brief fluctuations in the string density of the diluting universe, but without major impact.
 
-But if a Mother Black Hole were to collide head-on with the dilating universe, our dilating universe would be like dust, directly sucked into this gigantic vacuum cleaner, becoming a part of its singularity.
+But if a Mother Black Hole were to collide head-on with the diluting universe, our diluting universe would be like dust, directly sucked into this gigantic vacuum cleaner, becoming a part of its singularity.
