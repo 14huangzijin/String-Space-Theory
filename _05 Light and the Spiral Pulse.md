@@ -69,8 +69,7 @@ This is why the longer a spiral pulse runs, the harder it is for it to spontaneo
 
 At this point, the spiral twist must be blocked head-on before it can transform into matter.
 
-This is why an electron antineutrino must strike a down quark to transform itself into an electron.
-
+This is why an electron anti-pulse (electron neutrino) must strike a down quark to transform itself into an electron.
 **Light Encounters a Material Loop: Thermal Energy**
 
 The energy of light does not dissipate through running.
