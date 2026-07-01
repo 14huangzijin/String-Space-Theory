@@ -28,7 +28,7 @@ In other words, our universe is not "expanding"—space is "diluting."
 
 Outside this diluting "universe bubble," space still exists. For now, let us call that space the "Greater Universe." The string-web density in the Greater Universe is lower. Because the density of our universe's Mother Black Hole was so high, after its explosion, these compact strings have been in a continuous process of outward dilution.
 
-We will discuss the details of the dilating universe later.
+We will discuss the details of the diluting universe later.
 
 Now, let us return to the most fundamental entity of this cosmos—the string.
 
