@@ -103,6 +103,6 @@ At this very moment, there is a person identical to you, in that distant symmetr
 
 The distance between these two universes is immensely vast.
 
-After all, the Mother Black Holes existed for at least ten trillion years. The two universes have long been separated by billions of light-years.
+After all, the Mother Black Holes existed for at least ten trillion years. The two universes have long been separated by an unimaginably vast gulf of space and time.
 
 We can never meet that person identical to us. But whenever you raise your hand, he will also raise the same hand—the symmetric one.
